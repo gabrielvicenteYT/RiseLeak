@@ -1,2 +1,1 @@
-# RiseLeak
-cocks
+# GET COCKED AHAHAHAH
